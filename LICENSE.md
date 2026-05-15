@@ -1,4 +1,4 @@
-# 
+# best dex sniper bot Tool | rug-pull-detection + slippage-control offers the most advanced dex sniper bot, with rug-pull-detection and slippage-control. Ideal for professional
 
 
 
